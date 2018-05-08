@@ -1,0 +1,2 @@
+# MemetGamingTR
+LegenSky
